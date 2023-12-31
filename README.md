@@ -1,2 +1,0 @@
-# abijithas
-my protofolio
